@@ -6,3 +6,4 @@ Lol, this is all available on DeviantArt, but if you hate that platform, you can
 * 4K Bliss With Weegee Desktop Wallpaper
 * HD Philips CD-i Zelda Phone Wallpaper
 * 2K King Harkinian's Grand Dinner Desktop Wallpaper
+* 2K Bliss With Weegee Invasion Edition Desktop Wallpaper
