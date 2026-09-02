@@ -1,6 +1,6 @@
 # My-Fucking-Artwork
 
-Lol, this is all available on DeviantArt, but if you hate that platform, you can now also download the raw image files here! 😂
+Lol, this is all available on <a href="https://www.deviantart.com/that1dutchguy" target="_blank">DeviantArt</a>, but if you hate that platform for some fucking reason I don't give a flying fuck about, you can now also download the raw image files here! 😂
 
 * 4K Bliss With Memes Desktop Wallpaper
 * 4K Bliss With Weegee Desktop Wallpaper
