@@ -8,3 +8,4 @@ Lol, this is all available on <a href="https://www.deviantart.com/that1dutchguy"
 * 2K King Harkinian's Grand Dinner Desktop Wallpaper
 * 2K Bliss With Weegee Invasion Edition Desktop Wallpaper
 * UHD Bliss With Weegee Phone Edition Wallpaper
+* Hotel Mario And King Harkinian Splitscreen Wallpaper
