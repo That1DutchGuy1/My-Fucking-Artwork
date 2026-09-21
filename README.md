@@ -6,7 +6,7 @@ The artwork from this repo is now integrated into my <a href="https://that1dutch
 
 # My Fucking Artwork
 
-Lol, this is all available on fucking <a href="https://www.deviantart.com/that1dutchguy" target="_blank">DeviantArt</a>, but if you hate that platform for some fucking reason I don't give a flying fuck about, you can now also download the raw image files here! 😂
+I made a lot of stupid funny meme artworks here. Fucking download them, or not. I don't give a flying fuck, lol. 😂
 
 **1. 4K Bliss With Memes Desktop Wallpaper** <br>
 
