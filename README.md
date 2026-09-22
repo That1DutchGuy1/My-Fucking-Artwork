@@ -44,4 +44,8 @@ I made a lot of stupid funny meme artworks here. Fucking download them, or not. 
 
 <img src="Cd-i-Pileup.png" alt="2K CD-i Zelda Character Pile Wallpaper" width="200" />
 
+**10. 2K Meme Mafia Desktop Wallpaper** <br>
+
+<img src="meme-mafia-desktop-wallpaper.png" alt="2K Meme Mafia Wallpaper" width="200" />
+
 ---
