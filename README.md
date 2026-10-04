@@ -52,4 +52,8 @@ I made a lot of stupid funny meme artworks here. Fucking download them, or not. 
 
 <img src="DVD-menu-background.png" alt="PAL DVD Menu Background" width="200" />
 
+**12. 2K Hotel Mario Wallpaper** <br>
+
+<img src="hotel-mario-wallpaper.png" alt="2K Hotel Mario Wallpaper" width="200" />
+
 ---
