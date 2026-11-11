@@ -56,7 +56,7 @@ I made a lot of stupid funny meme artworks here. Fucking download them, or not. 
 
 <img src="hotel-mario-wallpaper.png" alt="2K Hotel Mario Wallpaper" width="200" />
 
-**13. 2K Hotel Mario Wallpaper** <br>
+**13. 4K Meme Group Photo on Bliss** <br>
 
 <img src="Meme-Group-Photo.png" alt="4K Meme Group Photo" width="200" />
 
