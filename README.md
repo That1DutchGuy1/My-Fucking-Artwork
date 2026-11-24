@@ -60,4 +60,7 @@ I made a lot of stupid funny meme artworks here. Fucking download them, or not. 
 
 <img src="Meme-Group-Photo.png" alt="4K Meme Group Photo" width="200" />
 
+**14. 4K Bliss Hills In Hell With Demon Weegee** <br>
+<img src="Bliss-In-Hell-with-Demon-Weegee.png" alt="Bliss Hills In Hell With Demon Weegee" width="200" />
+
 ---
