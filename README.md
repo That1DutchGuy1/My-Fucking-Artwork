@@ -1,6 +1,10 @@
+# My Fucking Artwork
+
+<img src="My-Fucking-Artwork-social-preview.png" alt="CD-i Princess Zelda looking shocked while looking at a crudely painted dick painted on an easel" />
+
 # BIG FUCKING NOTE
 
-The artwork from this repo is now integrated into my <a href="https://that1dutchguy1.github.io/thatonedutchguys-shit-ass-toybox/" target="_blank">Shit Ass Toybox</a> and can be directly downloaded from there, making this repo practically useless except for having the joy of reading this stupid README lol.
+The artwork from this repo is now integrated into my <a href="https://that1dutchguy1.github.io/thatonedutchguys-shit-ass-toybox/" target="_blank">Shit Ass Toybox</a> and can be directly downloaded from there, making this repo practically useless for you, except for having the joy of reading this stupid README lol.
 
 ---
 
